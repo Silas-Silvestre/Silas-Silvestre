@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Silas-Silvestre 😎
+## Bem-vindo(a) ao perfil de Silas-Silvestre 😎
 
  <div>
   <a href="https://github.com/">
